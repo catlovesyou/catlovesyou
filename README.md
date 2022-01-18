@@ -1,6 +1,4 @@
-Hi, I'm cat / yecats ᗢ₊･,,
-
-I go by They / Them.
+Hi, I'm cat / yecats,,
 
 I'm (very) new to coding, but, i want to give it a shot :D
 I'm interested in one day designing websites, and more!. 
